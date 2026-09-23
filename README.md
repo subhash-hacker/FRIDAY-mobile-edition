@@ -1,0 +1,2 @@
+# FRIDAY-mobile-edition
+MY FRIDAY AI ASSISTANT 
